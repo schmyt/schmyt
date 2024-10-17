@@ -6,6 +6,6 @@
 
 <div align="center">
 
-![](https://files.catbox.moe/alfb7r.png) ⠀⠀ ⠀⠀⠀⠀⠀⠀  ![](https://files.catbox.moe/gjgdrq.png)
+[![](https://files.catbox.moe/alfb7r.png)](https://rentry.co/berq) ⠀⠀ ⠀⠀⠀⠀⠀⠀  [![](https://files.catbox.moe/gjgdrq.png)](https://berq.atabook.org)
 
 ![](https://files.catbox.moe/zzonc4.png)
