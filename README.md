@@ -10,3 +10,7 @@
 ![](https://files.catbox.moe/xx0m8a.png)
 
 me  　  　  　  [tex](https://github.com/eternalaeon)  　  　  　[elias](https://github.com/snakelias)
+
+elias ist voll im suff (energy drinks) und schnattert zu viel
+
+#787
