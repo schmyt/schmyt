@@ -11,6 +11,6 @@
 
 me  　  　  　  [tex](https://github.com/eternalaeon)  　  　  　[elias](https://github.com/snakelias)
 
-elias ist voll im suff (energy drinks) und schnattert zu viel
+elias voll im suff und schnattert krass
 
 #787
