@@ -11,6 +11,4 @@
 
 me  　  　  　  [tex](https://github.com/eternalaeon)  　  　  　[elias](https://github.com/snakelias)
 
-elias voll im suff und schnattert krass
-
-#787
+elias du witzbold
