@@ -9,6 +9,6 @@
 
 ![](https://files.catbox.moe/xx0m8a.png)
 
-me  　  　  　  [tex](https://github.com/eternalaeon)  　  　  　[elias](https://github.com/snakelias)
+me  　  　  　  [tex](https://github.com/cannib3l)  　  　  　[elias](https://github.com/snakelias)
 
 ohh lavaaa oh laaavaa
