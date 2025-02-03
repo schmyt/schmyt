@@ -9,7 +9,4 @@
 
 ![](https://files.catbox.moe/2v2lcc.png)
 
-me  　  　  　  [tex](https://github.com/cannib4l)  　  　  　[elias](https://github.com/snakelias)
-
-
-![](https://files.catbox.moe/pgkptn.png)
+#bff  　  　  　  [tex](https://github.com/cannib4l)  　  　  　[elias](https://github.com/snakelias)
